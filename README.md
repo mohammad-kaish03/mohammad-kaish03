@@ -3,7 +3,7 @@
 🎯 **Aspiring Data Analyst | Civil Engineer turned Data Enthusiast**  
 📍 Nagpur, India  
 📧 mkismad896@gmail.com | 📱 +91 8349877497  
-🔗 [LinkedIn]([https://linkedin.com/in/mohammad-kaish-ansari](https://www.linkedin.com/in/mohammad-kaish-ansari-868998338/)) | [GitHub](https://github.com/mohammad-kaish03)
+🔗 [LinkedIn](https://linkedin.com/in/mohammad-kaish-ansari](https://www.linkedin.com/in/mohammad-kaish-ansari-868998338/)) | [GitHub](https://github.com/mohammad-kaish03)
 
 ---
 
