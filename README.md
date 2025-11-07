@@ -3,8 +3,7 @@
 
 🎯 **Aspiring Data Analyst
 
-📧 mkismad896@gmail.com | 📱 +91 8349877497  
-🔗 [LinkedIn](https://linkedin.com/in/mohammad-kaish-ansari-868998338/) | [GitHub](https://github.com/mohammad-kaish03)
+📧 mohammadkaish8349@gmail.com | 📱 +91 8349877497  
 
 ---
 
